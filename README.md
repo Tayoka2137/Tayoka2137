@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Tayoka2137 aka Czumpi
 - 👀 I’m interested in a lotta different stuff
 - 🌱 I’m currently studying Computer Science @ Cavalry Captain Witold Pilecki State University of Małopolska in Oświęcim, Poland
-- 📫 How to reach me - email azygmunt273@gmail.com
+- 📫 How to reach me - email tayoka@tayoka.uk
